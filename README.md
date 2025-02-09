@@ -1,5 +1,3 @@
-Not much for now...
-
 "When the pawn hits the conflicts he thinks like a king.
 What he knows throws the blows when he goes to the fight.
 And he'll win the whole thing 'fore he enters the ring.
