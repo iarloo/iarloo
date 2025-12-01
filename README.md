@@ -1,6 +1,6 @@
 ![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif)
 ![Alt Text](https://i.postimg.cc/RVDP3HqW/lightbar.gif)
-![Alt Text](https://clipart-library.com/image_gallery/n1646834.gif)
+![a](https://clipart-library.com/image_gallery/n1646834.gif)
 
 
 &nbsp;
