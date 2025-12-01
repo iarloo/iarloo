@@ -1,4 +1,5 @@
 ![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif)
+![Alt Text](https://i.postimg.cc/RVDP3HqW/lightbar.gif)
 
 "When the pawn hits the conflicts he thinks like a king.
 What he knows throws the blows when he goes to the fight.
