@@ -28,3 +28,5 @@ And if you fall it won't matter, cuz you'll know that you're right."
 
 ![Alt text](https://c.tenor.com/f7vlwxwI4t4AAAAC/tenor.gif)
 <<<< LORDE
+
+![Alt text](https://c.tenor.com/P2-SA0dSvaAAAAAC/tenor.gif)
