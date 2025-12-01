@@ -1,3 +1,5 @@
+![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif)
+
 "When the pawn hits the conflicts he thinks like a king.
 What he knows throws the blows when he goes to the fight.
 And he'll win the whole thing 'fore he enters the ring.
