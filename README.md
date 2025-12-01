@@ -1,8 +1,4 @@
-![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif) << BEM-VINDO
-
-&nbsp;
-<< aaa
-
+![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif) << BEM-VINDO, Sou estudante de computação e ainda n sei uq diabos é javascript :D
 
 ![Alt text](https://clipart-library.com/image_gallery/n1646834.gif)
 &nbsp;
