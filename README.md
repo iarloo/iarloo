@@ -1,5 +1,9 @@
 ![Alt Text](https://i.postimg.cc/QtC9WHFM/welcome.gif) << BEM-VINDO, estudante de computação e ainda n sei uq diabos é javascript :D
 
+
+vobate uma foto aq rapidinho
+![Alt text](https://c.tenor.com/P2-SA0dSvaAAAAAC/tenor.gif)
+valeu, agora fica o poema da fiona apple ai flw
 ![Alt text](https://clipart-library.com/image_gallery/n1646834.gif)
 &nbsp;
 
