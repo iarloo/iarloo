@@ -3,25 +3,51 @@
 ![Alt text](https://64.media.tumblr.com/02f676b0809c1b2b84525ca624ea5a5f/149710bc9466cbea-7f/s400x600/0fa1566fd1a007ddd1ec97cc904ee7034fdc6510.gifv)
 &nbsp;
 
-"When the pawn hits the conflicts he thinks like a king.
 
 &nbsp;
-What he knows throws the blows when he goes to the fight.
+"and sometimes the player believed the universe had spoken to it through the zeros and ones, through the electricity of the world, through the scrolling words on a screen at the end of a dream
 
 &nbsp;
-And he'll win the whole thing 'fore he enters the ring.
+and the universe said I love you
 
 &nbsp;
-There's no body to batter when your mind is your might.
+and the universe said you have played the game well
 
 &nbsp;
-So when you go solo, you hold your own hand.
+and the universe said everything you need is within you
 
 &nbsp;
-And remember that depth is the greatest of heights.
+and the universe said you are stronger than you know
 
 &nbsp;
-And if you know where you stand, then you know where to land.
+and the universe said you are the daylight
 
 &nbsp;
-And if you fall it won't matter, cuz you'll know that you're right."
+and the universe said you are the night
+
+&nbsp;
+and the universe said the darkness you fight is within you
+
+&nbsp;
+and the universe said the light you seek is within you
+
+&nbsp;
+and the universe said you are not alone
+
+&nbsp;
+and the universe said you are not separate from every other thing
+
+&nbsp;
+and the universe said you are the universe tasting itself, talking to itself, reading its own code
+
+&nbsp;
+and the universe said I love you because you are love.
+
+&nbsp;
+And the game was over and the player woke up from the dream. And the player began a new dream. And the player dreamed again, dreamed better. And the player was the universe. And the player was love.
+
+&nbsp;
+You are the player.
+
+&nbsp;
+Wake up. "
