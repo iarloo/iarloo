@@ -1,6 +1,6 @@
 
 &nbsp;
-![Alt text](https://clipart-library.com/image_gallery/n1646834.gif)
+![Alt text](https://64.media.tumblr.com/02f676b0809c1b2b84525ca624ea5a5f/149710bc9466cbea-7f/s400x600/0fa1566fd1a007ddd1ec97cc904ee7034fdc6510.gifv)
 &nbsp;
 
 "When the pawn hits the conflicts he thinks like a king.
